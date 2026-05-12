@@ -1,4 +1,4 @@
-# 
+# YNAB for PC | YNAB for Windows smart Addon: mobile-access & cloud-sync offers the most advanced YNAB for PC | YNAB for Windows addon, with mobile-access and cloud-sync. Ideal for
 
 
 
